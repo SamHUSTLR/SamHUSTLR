@@ -1,4 +1,4 @@
-# Hello, I'm Sam Hustle 👋
+# Hello, I'm Samuel Nyangweso 👋
 
 ![Profile Banner](https://yourimageurl.com)
 
